@@ -58,7 +58,7 @@ Untuk diskusi atau kolaborasi:
 
 - 📧 Email : muhammadfirosfuadi25@gmail.com
 - 💼 LinkedIn : https://www.linkedin.com/in/firos-fuadi-a621823a5/
-- 🌐 Website / Portofolio : SOON
+- 🌐 Website / Portofolio : https://fiross-seventis.github.io/portofolio/
 
 ---
 
